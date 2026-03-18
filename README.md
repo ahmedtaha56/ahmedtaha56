@@ -10,7 +10,7 @@
 
 **Building scalable, innovative mobile applications with cutting-edge technologies**
 
-[Email](mailto:paraboyy56@gmail.com) · [GitHub](https://github.com/ahmedtaha56) · [LinkedIn](#) · [Portfolio](#)
+[Email](mailto:paraboyy56@gmail.com) · [GitHub](https://github.com/ahmedtaha56) · [LinkedIn](https://www.linkedin.com/in/ahmed-taha-6706773b7/) · [Portfolio](https://syed-ahmed-taha.vercel.app/)
 
 </div>
 
